@@ -1,4 +1,4 @@
-Hi, I'm Anna 👋 from 🇦🇷 Currently working at @ 🪙 Learning everything about crypto and blockchains ⛓️ ESP/ENG/PT-BR
+Hi, I'm Anna 👋 from 🇦🇷 Currently working at @Lemon 🪙 Learning everything about crypto and blockchains ⛓️ ESP/ENG/PT-BR
 
 <!---
 Ponspythh/Ponspythh is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
